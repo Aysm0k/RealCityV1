@@ -7,7 +7,7 @@ ____
 ### French:
 d'autre leak arrive fort 
 
-- **LEAK:** https://discord.gg/fBGYcBrQAx
+- **LEAK BASE FIVEM:** https://discord.gg/fBGYcBrQAx
 
 ### Aucun Support ne sera donner pour cette base !
 
