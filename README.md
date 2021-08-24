@@ -7,7 +7,7 @@ ____
 ### French:
 d'autre leak arrive fort 
 
-- **LEAK BASE FIVEM:** https://discord.gg/fBGYcBrQAx
+- **LIEN DE DOWNLOAD DANS LE SALON LEAK:** https://discord.gg/fBGYcBrQAx
 
 ### Aucun Support ne sera donner pour cette base !
 
